@@ -1,0 +1,1 @@
+Video de la presentación Dual: https://drive.google.com/drive/folders/1yuZyIna54VpXAg9ctTrzRVTt_W2qHR16?usp=drive_link
